@@ -1,1 +1,1 @@
-https://github.com/moekyawaung-china/Wiki
+https://github.com/moekyawaung-china.github.io/Wiki
